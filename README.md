@@ -1,6 +1,6 @@
 # Monique Rosa Alves
 
-### Information Systems Professional | PhD Applicant — Fall 2027
+### Information Systems Professional | Prospective PhD Student
 
 **Research Interests:** Human-Centered AI | Multi-Agent Systems | Human-AI Interaction | AI-Supported Decision-Making
 
